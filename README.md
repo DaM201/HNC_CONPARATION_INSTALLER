@@ -1,0 +1,2 @@
+# HNC_CONPARATION_INSTALLER
+hnc_conparation_installer
