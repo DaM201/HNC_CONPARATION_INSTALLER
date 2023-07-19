@@ -1,4 +1,1 @@
-Hi, you would like a Hacker Client,
-then this one is right for you,
-it is in development,
-so we will give you PRINTER 0.5
+Hi, we made HNC CONPARATION INSTALLER for you. What does this program involve? this program is for Hacking and you can also in games. such as Minecraft. The terminal can also download you. See you later!
